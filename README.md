@@ -1,10 +1,3 @@
-- 👋 Hi, I’m @AlvarezA113
-  yeah
-- 👀 I’m interested in ...
-   bgbhfghngfhngfhjgfhj
-- 🌱 I’m currently learning ...
-  html
-- 💞️ I’m looking to collaborate on ...
-  school
-- 📫 How to reach me ...
-  you cant
+- learning on my own
+
+- if you want to connect, just dm me
